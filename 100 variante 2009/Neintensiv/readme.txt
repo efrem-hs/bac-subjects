@@ -1,0 +1,1 @@
+Rezolvarile la subiectul I sunt aceleasi pentru variantele intensiv si neintensiv.
